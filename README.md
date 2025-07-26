@@ -7,7 +7,7 @@
 elliot / zach　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　 i'll love elliot. specifically WAAPP elliot　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　i block whenever i want to. y? cuz i said so fatass
 　　　　　　　　　　　　　　　　　　　　　　<img src="https://files.catbox.moe/zh8nos.png">
 
-　　　　　　　　　　　　　　　　　　　　 　　　 　　 [twitter](https://x.com/ihflulz/)　　𓏵　　[atabook](https://pizzaburgerroll.atabook.org/)
+　　　　　　　　　　　　　　　　　　　　 　　　 　[twitter](https://x.com/ihflulz/)　　𓏵　　[atabook](https://pizzaburgerroll.atabook.org/)
 </p>
 <p align="center">
 free c*h i don't bite plss　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　w2i unless i'm w/ my friends　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　doubles dniuc (sorry) 007*7 or ch*nce dni /jjj
