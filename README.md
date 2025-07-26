@@ -1,7 +1,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/mypvxf.png">
 
-　　　　　　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Press+Start+2P&pause=1000&color=B8241B&center=true&vCenter=true&width=435&lines=...;Just+get+going.)](https://git.io/typing-svg)
+　　　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Press+Start+2P&pause=1000&color=B8241B&center=true&vCenter=true&width=435&lines=...;Just+get+going.)](https://git.io/typing-svg)
 </p>
 <p align="center">
 elliot / zach　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　 i'll love elliot. specifically WAAPP elliot　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　i block whenever i want to. y? cuz i said so fatass
